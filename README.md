@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BERC760802HMCRMR00
+BERC760802HMCRMR00
